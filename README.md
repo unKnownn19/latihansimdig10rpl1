@@ -1,0 +1,1 @@
+# latihansimdig10rpl1
